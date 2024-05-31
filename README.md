@@ -18,6 +18,7 @@
 - ⚡ Fun fact **I've been playing guitar since I was 14, specializing in fingerstyle. One of my favorite pieces to play is "Sunflower - Paddy Sun."**
 
 <h3 align="left">Connect with me:</h3>
+https://www.linkedin.com/in/tphm3/
 <p align="left">
 </p>
 
